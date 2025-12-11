@@ -1,0 +1,1 @@
+for my gamelog so i dont have to use random weblinks
